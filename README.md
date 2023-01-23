@@ -1,0 +1,1 @@
+# smartidea.github.com
