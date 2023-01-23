@@ -1,1 +1,1 @@
-# smartidea.github.com
+# smartidea.github.io
